@@ -1,12 +1,12 @@
-### Your Name / Date
+### Joyce Stonebraker/10.3.21
 
 ### Executive Summary
 
-Include your executive summary
+This project will encompass research on remote information technology teaching opportunities in colleges and vocational training organiations. The project will include scope of research, resources, discussion of research and a conclusion that will incorporate future considerations and/or challenges.
 
 ### Part Part 1: Project Intent and Plan
 
-Describe the process you will take to become co-op ready (include dates of seminars you will plan if you elect Option 1 OR, a brief description of the project you plan to implement (programming, research etc.)
+I will do Option 2. A brief description of my research project is research remote information technology teaching opportunities in colleges and vocational training organizations.
 
 ### Project Part 2:
 
