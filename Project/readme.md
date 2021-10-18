@@ -16,5 +16,5 @@ See Blackboard for details
 
 ### Conclusion
 
-Include your conclusion
+Attached is the final part of the Project Part 2 option a brief description of my research project named remote information technology teaching opportunities.
 
