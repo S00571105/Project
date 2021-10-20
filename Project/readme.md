@@ -8,7 +8,8 @@ This project will encompass research on remote information technology teaching o
 
 I will do Option 2. A brief description of my research project is research remote information technology teaching opportunities in colleges and vocational training organizations.
 
-### Project Part 2:
+### Project Part 2: did research paper see below and attachment
+
 Information Technology Teaching Opportunities
 
 Executive Summary/Topic Summary
